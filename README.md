@@ -1,0 +1,3 @@
+puna bara malih krokodila...!!
+nemoj vadim pucam!!!!...
+unistili smo cokolino mafiju!!!!!!!
